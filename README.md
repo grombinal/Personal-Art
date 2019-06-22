@@ -1,4 +1,3 @@
 # Personal-Art
-quick snapshot of my personal illustrations made in procreate
-
+Quick snapshot of my personal illustrations made in Procreate
    
